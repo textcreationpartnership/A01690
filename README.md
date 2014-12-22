@@ -35,9 +35,28 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Christiana-Polemica, or A preparatiue to warre Shewing the lawfull vse thereof. The iust causes that
+
+1. To the right honourable
+FRANCIS Lord VERVLAM
+Lord Chauncellor of England
+his very ſingular good LORD:
+A. G. wiſheth all happines and
+felicitie, externall, internall,
+eternall.
+
+1. TO THE WORTHY
+and well-deſeruing Citizens
+of LONDON, that practiſe
+Armes in the
+Artillery Garden.
+
 #####Body#####
-Christiana-Polemica, or A preparatiue to warre Shewing the lawfull vse thereof. The iust causes that
+
+1. Christiana-Polemica
+OR
+A PREPARATIVE
+to Warre.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
